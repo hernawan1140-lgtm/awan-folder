@@ -1,2 +1,0 @@
-# awan-folder
-Pertama
